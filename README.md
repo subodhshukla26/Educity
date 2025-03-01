@@ -1,1 +1,1 @@
-# Educity OKOk
+# Educity
